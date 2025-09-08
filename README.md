@@ -1,1 +1,1 @@
-your average full stack dev on steriods
+average full stack dev 
